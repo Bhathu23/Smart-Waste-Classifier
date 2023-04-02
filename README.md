@@ -7,7 +7,7 @@ Trash has become a major problem in everyday life. Until now there is no right m
 
 ![2023_02_10_13_15_IMG_7976](https://user-images.githubusercontent.com/66987318/229367867-8749b9d4-8014-4e9a-9a26-700a05f95b81.JPG)
 
-![2023_02_10_13_15_IMG_7977](https://user-images.githubusercontent.com/66987318/229367871-05d113da-2491-40a3-96f8-e42595ab8af8.JPG)
+![2023_02_10_13_16_IMG_7979](https://user-images.githubusercontent.com/66987318/229369255-4eced0e8-afb0-411c-ad35-b5b010a05894.JPG)
 
 
 ### Demo:
