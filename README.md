@@ -10,6 +10,6 @@ Trash has become a major problem in everyday life. Until now there is no right m
 ![2023_02_10_13_15_IMG_7977](https://user-images.githubusercontent.com/66987318/229367871-05d113da-2491-40a3-96f8-e42595ab8af8.JPG)
 
 
-
+### Demo:
 https://user-images.githubusercontent.com/66987318/229368315-c61b2a9a-590c-4ae1-84b6-856ba62acf13.mp4
 
